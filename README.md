@@ -17,6 +17,129 @@ This paper is written for anyone genuinely seeking to understand what Scripture 
 
 ---
 
+# Scripture Summary Table
+
+This table groups all cited passages by theological subject, providing a quick reference overview of how Scripture testifies to the full deity of Christ and the Spirit.
+
+---
+
+## Divine Identity & Glory
+
+| Reference            | Theme                         | Summary                                                                 |
+|----------------------|-------------------------------|-------------------------------------------------------------------------|
+| Isaiah 42:8          | Exclusive glory of YHWH       | YHWH declares He will not share His glory with another.                 |
+| Isaiah 6; John 12:41 | Glory of Christ = YHWH’s glory| Isaiah’s vision of YHWH’s glory is identified as Christ’s glory.        |
+| John 17:5            | Pre-existent divine glory     | Jesus claims the eternal glory He had with the Father before creation.  |
+| Isaiah 40:3; Mal 3:1 | YHWH’s coming                 | NT applies YHWH’s arrival texts to Christ’s advent.                     |
+| Revelation 22:1      | Shared throne                 | One throne for God and the Lamb, signifying shared authority.           |
+
+---
+
+## Worship Reserved for God
+
+| Reference            | Theme                         | Summary                                                                 |
+|----------------------|-------------------------------|-------------------------------------------------------------------------|
+| Deuteronomy 6:13     | Exclusive worship             | Worship is reserved for YHWH alone.                                     |
+| Hebrews 1:6          | Worship of the Son            | Angels commanded to worship Christ, citing OT command to worship YHWH.  |
+| Isaiah 45:23; Phil 2:10–11 | Universal worship       | Every knee bows to Christ, fulfilling YHWH’s claim.                     |
+| Daniel 7:13–14       | *Latreuo* worship             | The Son of Man receives worship reserved for YHWH alone.                |
+| Revelation 5:13–14   | Worship of God and the Lamb   | Father and Son receive identical worship together.                      |
+| Revelation 19:10; 22:8–9 | Angels refuse worship     | Angels reject worship, highlighting Christ’s uniqueness in receiving it.|
+
+---
+
+## Creation & Sustaining Power
+
+| Reference            | Theme                         | Summary                                                                 |
+|----------------------|-------------------------------|-------------------------------------------------------------------------|
+| Isaiah 44:24         | YHWH as Creator               | YHWH created the heavens and earth by Himself.                          |
+| John 1:3             | Christ as Creator             | All things came into being through Christ, without exception.           |
+| Colossians 1:15–17   | Christ as Firstborn & Sustainer | Christ creates and sustains all things, not part of creation.         |
+| Revelation 3:14      | *Arche* of creation           | Christ is the source/ruler of creation, not the first created being.    |
+| Hebrews 1:3          | Sustainer                     | Christ upholds all things by the word of His power.                     |
+| Hebrews 1:10–12; Psalm 102:25–27 | Immutable Creator | Father addresses the Son as YHWH, eternal and unchanging.               |
+| Proverbs 8; 1 Cor 1:24 | Wisdom personified          | Christ as the eternal wisdom of God, coeternal with the Father.         |
+
+---
+
+## Salvation & Sovereignty
+
+| Reference            | Theme                         | Summary                                                                 |
+|----------------------|-------------------------------|-------------------------------------------------------------------------|
+| Isaiah 43:11         | YHWH as Savior                | YHWH alone saves; no savior besides Him.                                |
+| Acts 4:12            | Salvation in Christ alone     | No other name by which men can be saved.                                |
+| Titus 2:13           | Christ as God and Savior      | Christ directly named as “our great God and Savior.”                    |
+| Joel 2:32; Rom 10:9–13 | Salvation in God’s name     | Calling on the name of Jesus = calling on the name of YHWH.             |
+| Genesis 18:25        | YHWH as Judge                 | Abraham identifies YHWH as Judge of all the earth.                      |
+| John 5:22–23         | Christ as Judge               | Father entrusts all judgment to the Son.                                |
+| Jeremiah 17:10; Rev 2:23 | Heart-searching            | YHWH alone knows hearts; Christ claims this prerogative.                |
+| Matthew 28:18        | Universal authority           | Christ possesses all authority in heaven and earth.                     |
+| 1 Corinthians 15:25; Psalm 110:1 | Messianic reign   | Christ reigns until all enemies are under His feet.                     |
+
+---
+
+## The “I AM” Declarations
+
+| Reference            | Theme                         | Summary                                                                 |
+|----------------------|-------------------------------|-------------------------------------------------------------------------|
+| Exodus 3:14          | YHWH’s self-revelation        | “I AM WHO I AM” — YHWH’s covenant name.                                 |
+| Isaiah 41:4; 43:10–11; 46:4 | Ani Hu formula         | YHWH repeatedly affirms “I am He” as unique God and Savior.             |
+| John 8:58            | Christ’s “I AM”               | Jesus claims the divine name before Abraham was.                        |
+| John 18:5–6          | Arrest scene                  | Christ’s “I am” causes soldiers to fall back.                           |
+
+---
+
+## Life, Resurrection, and Judgment
+
+| Reference            | Theme                         | Summary                                                                 |
+|----------------------|-------------------------------|-------------------------------------------------------------------------|
+| Deuteronomy 32:39    | YHWH gives life and death     | Only YHWH kills and makes alive.                                        |
+| 1 Samuel 2:6         | YHWH’s sovereign life-power   | YHWH alone raises from Sheol.                                           |
+| John 5:21, 26–29     | Christ as life-giver & Judge  | The Son gives life and raises the dead at the last day.                 |
+| John 10:17–18        | Authority over own life       | Christ lays it down and takes it up again by His own power.             |
+| John 11:25           | Resurrection and life         | Jesus declares Himself the resurrection and the life.                    |
+| Matthew 25:31–46     | Final judgment                | The Son of Man separates the nations as Judge.                          |
+
+---
+
+## Eschatological Fulfillment
+
+| Reference            | Theme                         | Summary                                                                 |
+|----------------------|-------------------------------|-------------------------------------------------------------------------|
+| Isaiah 40:3–5        | YHWH’s coming glory           | YHWH Himself comes; NT applies to Christ.                               |
+| Ezekiel 34:11–16     | YHWH as Shepherd              | YHWH promises to shepherd His people.                                   |
+| Joel 2:28–32         | Spirit poured out             | YHWH promises eschatological Spirit-outpouring, fulfilled at Pentecost. |
+| Daniel 2:44          | Everlasting kingdom           | YHWH establishes an eternal kingdom.                                    |
+| Daniel 7:13–14       | Son of Man’s reign            | The Son of Man receives dominion and worship.                           |
+| Zechariah 12:10      | Pierced YHWH                  | YHWH is pierced — applied to Christ’s crucifixion.                      |
+| Revelation 1:7       | Cloud-coming Judge            | Christ returns on clouds; every eye will see Him.                       |
+| Revelation 11:15     | Eternal kingdom               | The kingdom belongs to “our Lord and His Christ.”                       |
+| Revelation 21:5      | New Creation                  | Christ declares, “Behold, I am making all things new.”                   |
+| Revelation 22:13     | Alpha and Omega               | Christ bears YHWH’s eternal titles.                                     |
+
+---
+
+## Holy Spirit: Deity and Personhood
+
+| Reference            | Theme                         | Summary                                                                 |
+|----------------------|-------------------------------|-------------------------------------------------------------------------|
+| Acts 5:3–4           | Spirit is God                 | Lying to the Spirit = lying to God.                                     |
+| 2 Corinthians 3:17–18| Spirit is Lord                | “The Lord is the Spirit” — bearing divine glory.                        |
+| Matthew 28:19        | Baptismal formula             | Spirit named with Father and Son in one divine Name.                    |
+| 2 Corinthians 13:14  | Benediction                   | Grace, love, and fellowship flow equally from Spirit.                   |
+| Hebrews 9:14         | Eternal Spirit                | Spirit is eternal, sharing God’s nature.                                |
+| Psalm 139:7–10       | Omnipresence                  | No one can flee from the Spirit’s presence.                             |
+| 1 Corinthians 2:10–11| Omniscience                   | Spirit knows the thoughts of God Himself.                               |
+| 1 Corinthians 12:11  | Sovereign will                | Spirit distributes gifts as He wills.                                   |
+| John 14:26; 15:26; 16:13–14 | Teacher & Witness      | Spirit teaches, testifies, and guides.                                  |
+| Romans 8:16, 26–27   | Witness & Intercession        | Spirit testifies with our spirit and intercedes in prayer.              |
+| Ephesians 4:30       | Grieved                       | Spirit can be grieved — proof of personhood.                            |
+| Acts 13:2, 4         | Calls & Sends                 | Spirit commands and sends missionaries.                                 |
+| Acts 16:6–7          | Forbids & Directs             | Spirit actively redirects apostolic mission.                            |
+| Isaiah 63:10–11      | Grieved in OT                 | Israel grieved His Holy Spirit, a personal divine agent.                |
+
+---
+
 ## Table of Contents
 
 - [Section 1: Divine Identity & Exclusive Glory of YHWH Applied to Christ](#section-1-divine-identity--exclusive-glory-of-yhwh-applied-to-christ)
