@@ -1,4 +1,5 @@
 # Christ as YHWH: A Biblical Examination
+## Keywords Christ as YHWH, Jesus Christ, Trinity, Holy Spirit, Paraclete, I AM, Logos, Alpha and Omega, Son of Man, Firstborn (*prototokos*), Arche (*ἀρχή*), Incarnation, Hypostatic Union, Mediator, Glory, Worship (*latreuo*), Creator, Sustainer, Sovereignty, Resurrection, Intercession, Redemption, Salvation, New Creation, Covenant Fulfillment, Inspiration, Regeneration, Sanctification, Sealing, Indwelling, Isaiah 42:8, Isaiah 43:11, Isaiah 44:24, John 1:1, John 8:58, John 17:5, Acts 5:3–4, Philippians 2:9–11, Colossians 1:15–20, Hebrews 1, Revelation 1:8, Revelation 22:13.
 
 > *"I am the Alpha and the Omega," says the Lord God, "who is and who was and who is to come, the Almighty."* — Revelation 1:8
 
