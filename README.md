@@ -27,6 +27,8 @@ This paper is written for anyone genuinely seeking to understand what Scripture 
 - [Section 7: Eschatological Fulfillment Applied to Christ](#section-7-eschatological-fulfillment-applied-to-christ)
 - [Section 8: Why Jesus Is Not Michael and Why "Subordination" Passages Do Not Deny His Deity](#section-8-why-jesus-is-not-michael-and-why-subordination-passages-do-not-deny-his-deity)
 - [Section 9: The Importance of Christ Being Fully Man and Fully God](#section-9-the-importance-of-christ-being-fully-man-and-fully-god)
+- [Section 10: The Holy Spirit as Fully God](#Section-10-The-Holy-Spirit-as-Fully-God)
+- [Section 11: The Personal Language and Verbs of the Spirit](Section-11-The-Personal-Language-and-Verbs-of-the-Spirit)
 - [Appendix: The Logical Impossibility of a Created Christ](#appendix-the-logical-impossibility-of-a-created-christ)
 - [Final Note](#final-note)
 - [A Pastoral Word](#a-pastoral-word)
@@ -194,6 +196,42 @@ Christ's priestly work—a major theme in Hebrews—absolutely requires Him to b
 At the same time, the value and efficacy of His priestly work depend on Him being fully God. Hebrews 7:16 declares that Christ's priesthood is based on the power of an indestructible life. Unlike human priests who die and must be replaced, Christ's divine nature guarantees that His priesthood is eternal (Hebrews 7:24), and that His intercession is absolutely effective because He always lives to make intercession (Hebrews 7:25). No created being could bear the weight of this role or provide a sacrifice of eternal value, but because Christ is fully God, His one sacrifice is eternally sufficient (Hebrews 10:14), and His intercession can never fail.
 
 Finally, the restoration of all creation itself hinges on Christ's unique identity as the God-man. Colossians 1:19-20 declares that "in Him all the fullness of God was pleased to dwell, and through Him to reconcile all things to Himself." No created being could bear this cosmic responsibility, nor could any creature bring about the reconciliation of all creation to God (Isaiah 44:24). The One who redeems creation must be the One who created it, yet He must also stand within creation as one of us to act on our behalf. That is the unique glory of Christ—fully God, fully man, the only mediator, the only High Priest, the only Savior.
+
+---
+
+## Section 10: The Holy Spirit as Fully God
+
+The testimony of Scripture is as clear regarding the Spirit as it is regarding the Son: the Holy Spirit is not an impersonal force, not a created emanation, and not a lesser god. He is fully YHWH, distinct in person yet one in essence with the Father and the Son.
+
+The New Testament makes this identification unmistakable. In Acts 5:3–4, Peter confronts Ananias for lying to the Holy Spirit, then immediately declares, “You have not lied to men but to God.” The Spirit is not God’s “power” but God Himself. In 2 Corinthians 3:17 Paul writes, “The Lord is the Spirit,” identifying the Spirit directly with the covenant name of God. The baptismal formula of Matthew 28:19 places the Spirit within the singular Name of God alongside the Father and the Son. Likewise, the benediction of 2 Corinthians 13:14 invokes the Spirit equally with the Father and the Son as the source of divine blessing. No creature can stand in this position without collapsing biblical monotheism.
+
+The Spirit also bears the divine attributes of YHWH. Hebrews 9:14 calls Him the eternal Spirit. Psalm 139:7–10 describes His omnipresence, asking, “Where shall I go from your Spirit?” Paul ascribes omniscience to Him in 1 Corinthians 2:10–11, stating that the Spirit searches everything, even the depths of God, and knows the thoughts of God Himself. His sovereignty is revealed in 1 Corinthians 12:11, where He distributes spiritual gifts “as He wills.” These are divine qualities, not the traits of an impersonal power.
+
+The Spirit performs the works of God, prerogatives belonging to YHWH alone. He is active in creation (Genesis 1:2; Job 33:4), inspiration (2 Samuel 23:2; 2 Peter 1:21), regeneration (John 3:5–8), sanctification (2 Thessalonians 2:13), and resurrection (Romans 8:11). Each of these is an act of divine sovereignty, never shared with angels or forces. When believers are called the temple of the Holy Spirit (1 Corinthians 6:19), it is because God Himself dwells in them. This parallels Old Testament texts where the Spirit of YHWH was personally grieved by Israel’s rebellion (Isaiah 63:10–11). Only a divine person can be personally offended in this way.
+
+Finally, the seriousness of blasphemy against the Holy Spirit (Matthew 12:31–32) underscores His deity. Sins against the Son may be forgiven, but blasphemy against the Spirit carries unique judgment. Such weight is never attached to slander against created beings, not even angels. To deny the Spirit’s deity is to mutilate the Trinity and misrepresent the living God.
+
+The evidence is overwhelming: the Spirit bears the Name, attributes, works, worship, and presence of YHWH. He is not a power sent by God; He is God, the third person of the one Triune Lord.
+
+---
+
+## Section 11: The Personal Language and Verbs of the Spirit
+
+The Scriptures consistently describe the Holy Spirit as a personal agent, not an impersonal force. This is seen both in the pronouns used and in the verbs and actions attributed to Him.
+
+Grammatically, “Spirit” (*pneuma*) is neuter in Greek, but grammar does not determine personhood. In John 14–16, the Spirit is called *paraklētos* (“Helper”), a masculine title, and John repeatedly uses the masculine pronoun *ekeinos* (“He”) to refer to Him (John 14:26; 15:26; 16:13–14). The personal force of the language is reinforced by the Spirit’s actions.
+
+The Spirit speaks. In Acts 13:2, He commands, “Set apart for me Barnabas and Saul for the work to which I have called them.” In 1 Timothy 4:1, Paul says, “The Spirit expressly says.” Hebrews 3:7 cites Psalm 95 with the introduction, “As the Holy Spirit says.” Speech belongs to persons, not energies. He also testifies (John 15:26; Romans 8:16), teaches (John 14:26), guides (John 16:13), and declares (John 16:14). These are verbs of agency, intention, and will.
+
+The Spirit possesses volition. Paul declares that He “apportions to each one individually as He wills” (1 Corinthians 12:11). He forbids Paul’s missionary team to enter Asia and redirects them (Acts 16:6–7). He appoints overseers in the church (Acts 20:28). These are sovereign, deliberate actions. Likewise, the Spirit knows and reveals the deep things of God (1 Corinthians 2:10–11). An impersonal force cannot search, comprehend, and disclose divine mysteries.
+
+The Spirit experiences personal affections. He can be grieved (Ephesians 4:30), resisted (Acts 7:51), and insulted (Hebrews 10:29). Israel “grieved His Holy Spirit” in the wilderness (Isaiah 63:10). These texts presuppose personal relational capacity, not mechanical reaction. James 4:5 likely refers to the Spirit’s jealous yearning for those whom He indwells, again underscoring His personal investment in God’s people.
+
+The Spirit also intercedes for believers (Romans 8:26–27). He does not merely carry prayers but actively pleads according to the will of God. He leads the children of God (Romans 8:14), seals believers for the day of redemption (Ephesians 1:13–14; 4:30), and guarantees their inheritance (2 Corinthians 1:22). He sends (Acts 13:4), empowers (Acts 1:8), and comforts (Acts 9:31). Paul sums it up concisely: “The Lord is the Spirit” (2 Corinthians 3:17).
+
+The Old Testament shows the same pattern. The Spirit strives with man (Genesis 6:3), speaks through the prophets (2 Samuel 23:2), clothes them with power (Judges 6:34; Micah 3:8), and is personally offended when Israel rebels (Isaiah 63:10–11). The continuity of His personal agency across both Testaments is undeniable.
+
+Taken together, the personal pronouns, relational verbs, and divine prerogatives demolish any attempt to reduce the Spirit to a mere force. He speaks, teaches, loves, commands, intercedes, grieves, and judges. These are not metaphors for energy; they are the operations of a divine Person. The Spirit is God, personally present with His people, glorifying the Son and accomplishing the will of the Father.
 
 ---
 
