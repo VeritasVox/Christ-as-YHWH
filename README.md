@@ -3,7 +3,7 @@
 
 > *"I am the Alpha and the Omega," says the Lord God, "who is and who was and who is to come, the Almighty."* — Revelation 1:8
 
-An exegetical demonstration that Jesus Christ shares fully in the divine identity of YHWH, distinct in person from the Father, yet one with Him in essence.
+An exegetical demonstration that Jesus Christ shares fully in the divine identity of YHWH, distinct in person from the Father, yet one with Him in essence. JWs will resort to Reasoning from The Scriptures or their JW Study Bible notes - this paper anticipates that. Can be proven using their own NWT.
 
 [![License: CC BY 4.0](https://img.shields.io/badge/License-CC%20BY%204.0-lightgrey.svg)](https://creativecommons.org/licenses/by/4.0/)
 
